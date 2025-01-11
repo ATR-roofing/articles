@@ -216,7 +216,7 @@ Ready to **protect your home or business** with expert roof repair or installati
   *Jan 9, 2025*  
   Discover how material costs, labor, and supply chain changes may impact your roofing budget.
 
-- **[Read More Blogs](#)**
+- **[ATR Roofing](https://allthatroofingin.com/)**
 
 ---
 
